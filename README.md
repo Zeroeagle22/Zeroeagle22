@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zeroeagle22
+- 👀 I’m interested in Coding games, websites, and making things that help people
+- 🌱 I’m currently learning all types of code including Java, Python, Blockcode(for youtube), and more
+- 💞️ I’m looking to collaborate on anything. if anyone want to colaborate or teach me how to code I am here to learn
+- 📫 How to reach me i am on discord, tiktok, instgram and more
